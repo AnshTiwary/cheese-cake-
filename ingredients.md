@@ -1,0 +1,13 @@
+To make cheese make we need:
+5 eggs,
+1/4 cup of all purpose flour,
+1tsp of cinnamon,
+2tbsp of cornstarch,
+38tbsp of Granulated sugar,white,
+1tbsp of vanilla extract,
+1/4 cup of almonds,
+1/4 cup of walnut,
+1 cup of graham crackers crumbs,
+6 packages of full fat cream,
+1 stick of butter,unsalted,
+2 cups of sour cream,full fat,

@@ -1,0 +1,5 @@
+step-1: assemble your tools and ingredients,
+step-2:make the vanilla wafter crust,
+step-3:make the cheese cake filling,
+step-4:bake your cheese cake,
+step-5:let your cheese cake cool,
